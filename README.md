@@ -12,3 +12,4 @@
 ![센과치히로](http://movie-img.yes24.com/NYes24/MOVIE//M04/M27/M00000042704_131749.jpg)
 
 
+우씨
